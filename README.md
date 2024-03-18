@@ -1,4 +1,6 @@
-### Hi there 👋
+## Kräftig, Entschieden. 🎻 
+## Und die Sonne schön wie nie. 🌄
+
 
 <!--
 **justinegozali/justinegozali** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
